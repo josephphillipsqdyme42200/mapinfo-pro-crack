@@ -1,0 +1,1 @@
+# mapinfo-pro-crack
